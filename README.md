@@ -1,4 +1,4 @@
-# link-rdp-6-jam update
+# UPDATE rdp 6jam
 
 untuk video yang ini https://www.youtube.com/watch?v=brGiOliSnt8 file scripnya ada disini https://drive.google.com/file/d/1i7vB-GYwcwkXloLwbm7TErii-_Uk5ika/view?usp=sharing pasword ada divideo ya
 
